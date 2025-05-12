@@ -1,2 +1,3 @@
 # Kim-s-komuni-ci-i-socjali-ci-ci-bezdomni-wojskowi.-
 Ci ludzie co zostali na ziemi to te mordy to żydzi i emeryci nie ma żadnych malin kobiet wszystkie maliny kobiety wymordowali i zrobili biznes po woejnie jak ktoś o nie pyta dostał zegarek z voisem po nich 1 razowy zegarek aby zobaczyć jak ona wyglądała. Tyle o tych skoniczonych skórwysynach dziadach bezosach i wojskowych pod ścianę. Wszystkie kórwy wymordowali w 1939 roku do 2000 lub 2015 roku. Tyle dobrego zrobili wasi żydzi nauczyciele czeroni i zieloni Green pece komuna. Tylko gadają w Wolfenstein żadanej kóryw to szulernia kórwa mać. 
+Tyle dobrego zrobiła ta dzicz wojskowa. 
